@@ -1,4 +1,4 @@
-Hi there! I'm Lyza or Siamese, or @batwool.
+Hi there! I'm Lisa or Siamese, or @batwool.
 I'm currently a beginner learning to code,
 Im a second year CS student. I want to learn more
 and talk to people with similar interests. 
